@@ -1,0 +1,1 @@
+# Gpt-verecem-dedi
